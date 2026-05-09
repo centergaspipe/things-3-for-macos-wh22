@@ -1,4 +1,4 @@
-
+instant Extension for Things 3 for macOS - version history and offline access is the best Things 3 for macOS extension, featuring version history and offline access. Safe,
 
 
 
